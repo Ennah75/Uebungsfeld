@@ -8,7 +8,7 @@ Die geschmackvolle Alternative zur Fleisch-Frikadelle, entweder als Beilage fris
 * 150 g kernige Haferflocken
 * 100 g feine Haferflocken
 * 200 g Kräuterquark
-* 200 g geriebenen, würzigen Käse
+* 240 g geriebenen, würzigen Käse
 * 3 Eier
 * 1 Zwiebel
 * Salz
