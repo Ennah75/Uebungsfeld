@@ -1,5 +1,5 @@
 # Kürbisblattgemüse
-Du hast einen kleinen Garten und der Kürbis wuchert, aber Dir sind die Blätter und Triebe zu schade zum Wegwerfen? Dann schneide sie klein und gebe sie entweder als Rohkost in Deinen Salat oder Du machst folgendes Rezept:
+Du hast einen kleinen Garten und der Speisekürbis wuchert, aber Dir sind die Blätter und Triebe zu schade zum Wegwerfen? Dann schneide sie klein und gebe sie entweder als Rohkost in Deinen Salat oder Du machst folgendes Rezept:
 
 ## Zutaten
 * 100 bis 300 g Kürbisblätter, Kürbistriebe, Kürbisblüten
